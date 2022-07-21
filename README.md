@@ -11,6 +11,7 @@ earn10485@gmail.com
 ## My hometown 
 ubonratchatani, Thailand
 
-## My favourite activites
-* wacth youtube
+## My favourite activities
+* wacthing youtube
 * shopping online
+* play game
